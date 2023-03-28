@@ -1,3 +1,3 @@
 # portfolio-4GC
 
-Portfolio projektów, arkuszy któe wykonywałem w szkole Technikum 19
+Portfolio projektów, arkuszy które wykonywałem w szkole Technikum 19
